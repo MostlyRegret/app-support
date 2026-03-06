@@ -2,7 +2,8 @@
 
 If you need help with the Oil Tracker / Maintenance Tracker app please contact:
 
-support@mostlyregret.dev
+ryandevelopment2@gmail.com
+
 
 Please include:
 
