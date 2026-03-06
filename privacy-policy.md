@@ -47,4 +47,5 @@ All data remains on the user's device and can be deleted by:
 
 If you have any questions about this Privacy Policy you may contact:
 
-support@mostlyregret.dev
+ryandevelopment2@gmail.com
+
